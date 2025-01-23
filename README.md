@@ -1,4 +1,2 @@
 # owo
-xdd
-uwu
-ahhhhh
+gouefiq
